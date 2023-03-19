@@ -1,0 +1,1 @@
+# Inventory-project-Equinox-Technogeeks
